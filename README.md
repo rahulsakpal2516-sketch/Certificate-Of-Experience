@@ -1,1 +1,2 @@
 # Certificate-Of-Experience
+Dedicated Quality Engineer (Technical Force Engineer On with a proven track record of maintaining high client satisfaction for UltraTech Cement across Mumbai. I specialized in real-time crisis management, visiting construction sites to diagnose and resolve cement performance issues on the spot. My role was defined by a commitment to technical excellence and a "client first" mindset, leveraging my technical expertise to build trust and persuade new Engineers and Contractors to adopt Ultra Tech solutions.
